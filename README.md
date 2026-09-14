@@ -101,10 +101,12 @@ Profissional de Tecnologia da Informação com atuação em Infraestrutura, NOC,
 ---
 
 # 📫 Contato
-
+(61) 99262.7009 / 98525.3616
 📧 plcmjr@gmail.com  
 🔗 LinkedIn: [linkedin.com/in/pedroluciojunior](https://linkedin.com/in/pedroluciojunior)  
 http://lattes.cnpq.br/2394388912757343
+
+Brasília/ DF.
 
 ---
 <p align="center"><i>Toda vez que choveu, parou.</i></p>
