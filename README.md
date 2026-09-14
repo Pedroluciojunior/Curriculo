@@ -104,6 +104,7 @@ Profissional de Tecnologia da Informação com atuação em Infraestrutura, NOC,
 
 📧 plcmjr@gmail.com  
 🔗 LinkedIn: [linkedin.com/in/pedroluciojunior](https://linkedin.com/in/pedroluciojunior)  
+http://lattes.cnpq.br/2394388912757343
 
 ---
 <p align="center"><i>Toda vez que choveu, parou.</i></p>
